@@ -1,2 +1,0 @@
-# Adil-Real-Estate
-demo
